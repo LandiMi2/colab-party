@@ -4,5 +4,17 @@
 
 - Mike
 - Laurah
-- Monsuer Luk
 - Joshua
+- David Nene
+- New Member
+- Pauline
+- Serena
+- Monsuer Luk
+- Victor
+- Suzan
+- Victor
+- Alvin
+- Monsieur Luk
+- Aboubcry
+- Dora
+
