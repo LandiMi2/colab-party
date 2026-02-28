@@ -5,5 +5,5 @@
 - Mike
 - Laurah
 - Victor
-- Alvin
+- [Alvin](https://github.com/Alvin-Nahabwe)
 - Monsieur Luk 
